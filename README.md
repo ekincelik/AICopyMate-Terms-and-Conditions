@@ -1,0 +1,1 @@
+# AICopyMate-Terms-and-Conditions
